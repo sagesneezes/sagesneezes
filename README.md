@@ -1,5 +1,5 @@
 # About Me
-<strong>hi my name is sage (or Avery) and I'm just here for a good time,,...
+<strong>hi my name is sage (or Avery) and I'm just here to make pretty ponies
 
 <a href="https://ibb.co/fVmv1Yjg"><img src="https://i.ibb.co/8nFcKD1C/yuuki-makoto-and-mochizuki-ryouji-persona-and-1-more-drawn-by-banijustice-sample-1340ffe2ef6461b5.jpg" alt="yuuki-makoto-and-mochizuki-ryouji-persona-and-1-more-drawn-by-banijustice-sample-1340ffe2ef6461b5" border="0"></a>
 
