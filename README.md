@@ -3,7 +3,7 @@
 
 <a href="https://ibb.co/fVmv1Yjg"><img src="https://i.ibb.co/8nFcKD1C/yuuki-makoto-and-mochizuki-ryouji-persona-and-1-more-drawn-by-banijustice-sample-1340ffe2ef6461b5.jpg" alt="yuuki-makoto-and-mochizuki-ryouji-persona-and-1-more-drawn-by-banijustice-sample-1340ffe2ef6461b5" border="0"></a>
 
-I generally hang out with at least 1 friend on ponytown but sometimes.. occasionally I am alone... 😢😢 I like making friends on pt but I am a little bit shy when it comes to being friends further than the game itself (i.e. giving out my Discord) 
+I generally hang out with at least 1 friend on ponytown but sometimes.. occasionally.. I am alone... 😢😢 I like making friends on pt but I am a little bit shy when it comes to being friends further than the game itself (i.e. giving out my Discord) 
 
 That isnt to say I won't give it out, but I can't guarantee we'll talk a lot outside of ponytown <a href="https://imgbb.com/"><img src="https://i.ibb.co/qLS2fbFH/47aca800.gif" alt="47aca800" border="0"></a>
 
