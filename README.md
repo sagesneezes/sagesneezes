@@ -1,4 +1,6 @@
 # About Me
+
+
 <strong>hi my name is sage (or Avery) and I'm just here to make pretty ponies
 
 <a href="https://ibb.co/fVmv1Yjg"><img src="https://i.ibb.co/8nFcKD1C/yuuki-makoto-and-mochizuki-ryouji-persona-and-1-more-drawn-by-banijustice-sample-1340ffe2ef6461b5.jpg" alt="yuuki-makoto-and-mochizuki-ryouji-persona-and-1-more-drawn-by-banijustice-sample-1340ffe2ef6461b5" border="0"></a>
@@ -11,5 +13,7 @@ I love Persona 3, and I am crazy obsessed with Makoto Yuki (or Minato Arisato, w
 
 More of my interests are on my strawpage, so you should totally check that out (even though it's a bit outdated)
 
-<a href="https://ibb.co/fY3YnXfw"><img src="https://i.ibb.co/wNnNwdVm/bfaad0b66f90b23539b6d5945474b3c0.jpg"  width="500" alt="bfaad0b66f90b23539b6d5945474b3c0" border="0"></a></strong>
+don't forget to sign my <a href="https://sagesneezes.atabook.org/">Atabook!</a> </strong> <small><- hyperlinked</small>
+
+<strong><a href="https://ibb.co/fY3YnXfw"><img src="https://i.ibb.co/wNnNwdVm/bfaad0b66f90b23539b6d5945474b3c0.jpg"  width="500" alt="bfaad0b66f90b23539b6d5945474b3c0" border="0"></a></strong>
 
