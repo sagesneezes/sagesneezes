@@ -8,6 +8,7 @@ I like to play videogames and watch my best friend <a href="https://github.com/c
 
 I like Persona 3 and FFXV a lot..
 
+ <a href="https://sagesneezes.straw.page/"> click to see my NEOCITIES</a>
 
 <a href="https://imgbb.com/"><img src="https://i.ibb.co/6SWR4Fw/image.png" alt="image" border="0"></a>
 
